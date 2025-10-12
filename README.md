@@ -1,1 +1,2 @@
-![](https://files.catbox.moe/9imrhr.gif)
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=farzm&label=meow%20&color=93905B&style=flat" </p>
+<p align="center">
